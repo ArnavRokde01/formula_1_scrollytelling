@@ -1,1 +1,1 @@
-# Aadhithya-Arnav-Hithaishi-Smaran
+Formula 1 project overview
